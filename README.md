@@ -1,1 +1,1 @@
-# M-dulo-de-Moeda-VIP-AzerothCore-
+# Mod -Moeda-VIP-AzerothCore-
