@@ -1,0 +1,1 @@
+# M-dulo-de-Moeda-VIP-AzerothCore-
